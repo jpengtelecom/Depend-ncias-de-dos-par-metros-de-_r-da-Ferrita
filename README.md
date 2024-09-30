@@ -1,0 +1,1 @@
+# Depend-ncias-de-dos-par-metros-de-_r-da-Ferrita
